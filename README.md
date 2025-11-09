@@ -1,2 +1,2 @@
-# Grannyma Organic Spices
+# Granyma Organic Spices
 Fresh Kerala Spices
